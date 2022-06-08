@@ -1,0 +1,1 @@
+# rika-ayu02.github.oi
